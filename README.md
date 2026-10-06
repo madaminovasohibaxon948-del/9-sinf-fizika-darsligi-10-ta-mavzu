@@ -1,0 +1,1 @@
+# 9-sinf-fizika-darsligi-10-ta-mavzu
